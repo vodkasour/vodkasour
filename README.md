@@ -6,3 +6,4 @@
 
 
   [emu](https://github.com/emuuotor1) is stupid and [jay](https://github.com/holedwelling) is dumb
+  [jula](https://github.com/H3rb4ta) should be more active
