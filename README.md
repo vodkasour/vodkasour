@@ -1,14 +1,21 @@
+
 <div align="center">
 
- <img src="https://files.catbox.moe/fzzy4o.png" alt="repositories r too much effort" width="300"/>
+ <img src="https://files.catbox.moe/4a4j42.webp" alt="repositories r too much effort" width="300"/>
 
  </div>
 
  <div align="center">
+
+i love all of my friends dearly
+
+especially my party (ˆ ̳- ·̫ - ̳ˆ )◞❤︎
+
    
-‎ ‎ **[rentry](https://rentry.co/kltty)‎ ‎ ‎ ‎ [atabook](https://trident.atabook.org/)**
+‎ ‎ [prns page](https://pronouns.cc/@cupidskiss)　[**daily click**](https://arab.org)　[新book](https://trident.atabook.org/)
 
-**[daily](https://arab.org)** ‎ ‎  ‎ **[click](https://arab.org)**
+<img src="https://files.catbox.moe/pai0y3.png" width="50"/> <img src="https://files.catbox.moe/5riids.png" width="50"/> <img src="https://files.catbox.moe/p6fjgd.png" width="55"/> 
 
+c+h & int freely always
 
- ‎ ( ˆ ཀ ˆ )­ྐഒ 
+</div>
