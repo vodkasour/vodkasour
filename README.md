@@ -1,6 +1,8 @@
 
 <div align="center">
 
+[**arab.org**](https://arab.org)　[**master document**](https://docs.google.com/document/d/1S_EA9f7buyt680AWZIwP0-IFj1qbVFdzT0ZBtGeAVv4/edit?tab=t.0)
+
  <img src="https://files.catbox.moe/4a4j42.webp" alt="repositories r too much effort" width="300"/>
 
  </div>
@@ -12,7 +14,7 @@ i love all of my friends dearly
 especially my party (ˆ ̳- ·̫ - ̳ˆ )◞❤︎
 
    
-‎ ‎ [prns page](https://pronouns.cc/@cupidskiss)　[**daily click**](https://arab.org)　[新book](https://trident.atabook.org/)
+‎ ‎ [prns page](https://pronouns.cc/@cupidskiss)　[nottie](https://princesoma.pythonanywhere.com/catshot)　[新book](https://trident.atabook.org/)
 
 <p align="center">
   <a href="https://github.com/vodkasour">
