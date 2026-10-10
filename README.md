@@ -14,7 +14,7 @@ i love all of my friends dearly
 especially my party (ˆ ̳- ·̫ - ̳ˆ )◞❤︎
 
    
-‎ ‎ [prns page](https://pronouns.cc/@cupidskiss)　[listography](https://listography.com/lifesteal)　[atabook](https://trident.atabook.org/)
+‎ ‎ [prns page](https://pronouns.cc/@cupidskiss)　　[atabook](https://trident.atabook.org/)
 
 <p align="center">
   <a href="https://github.com/vodkasour">
